@@ -1,9 +1,9 @@
-﻿# Discover the Incredible Benefits of Neuro Fortis PRO
+# Discover the Incredible Benefits of Neuro Fortis PRO
 
 Anyone with an interest in boosting their mental performance, listen up! There's been a lot of buzz recently about **[this supplement called Neuro Fortis PRO](https://getneurofortis.com/#aff=MichaelMica)**. Whether you're cramming for exams, or need that edge in your 9-5 gig, or you're just curious about ways to give your brain a much-deserved boost, Neuro Fortis PRO is worth checking out. So, let's jump right in, shall we?
 
 ## What Exactly is Neuro Fortis PRO?
-
+![Discover the Incredible Benefits of Neuro Fortis PRO](https://github.com/samytores/Neuro-Fortis-PRO/blob/d0a28136bcc4a274559fd39b9c6aeb8e7465f083/neurofortis_3_thumb.png)
 In the simplest terms, Neuro Fortis PRO is a dietary supplement that's designed to enhance brain performance. It's like a personal trainer for your brain, helping it get stronger, sharper, and more focused. You're probably thinking, "Sounds great, but how exactly does it work?" Well, strap in, and let's dig into the Neuro Fortis PRO benefits.
 
 ## The Benefits of Neuro Fortis PRO
@@ -41,4 +41,3 @@ But don't just take my word for it, try it out yourself. It's always important t
 In other words, **[if you're curious about the benefits of Neuro Fortis PRO, there's only one way to find out](https://getneurofortis.com/#aff=MichaelMica)**. Give it a whirl, see how it affects you. Who knows, you might just discover that it's the brain-boosting supplement you've been looking for all along.
 
 Remember, the brain is a beautiful, complex organ. It deserves to be taken care of, nurtured, and boosted. And Neuro Fortis PRO just might be the tool to help you do exactly that. So, why not take the plunge? Your brain will thank you for it.
-
